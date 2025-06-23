@@ -1,5 +1,2 @@
-<h3 align="center"> <img src="https://i.postimg.cc/C5cGqXjD/1000002709.png" height="650"/></h3>
-<h3 align="center">. ݁₊ ⊹ . ݁⟡ ㅤㅤ꒰ 𝓜iriel ꒱ㅤㅤ ⟡ ݁ . ⊹ ₊ ݁.</h3>
-<h3 align="center">── ʚɞ ──</h3>
-<h4 align="center">𝑚/𝑤 orikaawa :/</h4>
-<h4 align="center"><a href="https://deuhf1238.carrd.co/" target="_blank">carrd</a> ㅤㅤㅤㅤ♡ ㅤㅤㅤ<a href="https://whotfismiriel.straw.page/" target="_blank">strwpg</a>
+<h3 align="left"> hi、 <a href="https://deuhf1238.carrd.co/" target="_blank">carrd</a>
+<h3 align="center"> <img src="https://i.postimg.cc/ncKgKXVF/096c3ded-0b3e-4c7d-b9f4-ae472faa4011.jpg" height="500"/></h3>
